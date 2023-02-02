@@ -1,0 +1,1 @@
+# Blade_2_Companion_Settings_Sample
